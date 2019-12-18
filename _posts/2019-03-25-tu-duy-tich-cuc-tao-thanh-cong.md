@@ -1,0 +1,23 @@
+---
+author: Napoleon Hill
+categories:
+- Tâm Lý - Kỹ Năng Sống
+description: Tư duy tích cực tạo thành công
+download_links:
+- info: pdf
+  url: https://sachvui.com/download/pdf/700
+image: https://sachvui.com/cover/2015/tu-duy-tich-cuc-tao-thanh-cong.jpg
+layout: post
+permalink: /tu-duy-tich-cuc-tao-thanh-cong.html
+tags:
+- tải sách miễn phí
+- tải sách nhanh
+- tải ebooks miễn phí
+- pdf miễn phí
+- Tư duy tích cực tạo thành công ebook
+- Tư duy tích cực tạo thành công pdf
+thumbnail_url: https://sachvui.com/cover/2015/tu-duy-tich-cuc-tao-thanh-cong.jpg
+title: Tư duy tích cực tạo thành công
+---
+
+ <div class="item-desc text-justify"> Triết gia, nhà tư tưởng vĩ đại người Đan Mạch Soren Kierkegaard từng viết: “Dấu hiệu của một cuốn sách hay đó là cuốn sách ấy đọc được suy nghĩ của bạn”. Bạn đang cầm trong tay một cuốn sách như vậy. Đây không chỉ là một tác phẩm kinh điển về chủ đề tự rèn luyện và phát triển bản thân, mà còn là một người bạn chí thân có thể chia sẻ mọi rắc rối của bạn, cũng như mang đến cho bạn những lời khuyên hữu ích. Song, tôi muốn cảnh báo trước với bạn một điều. Cuốn sách này không làm gì cho bạn cả. Nếu thật sự muốn thay đổi cuộc sống của bạn theo chiều hướng tốt hơn, nếu quyết tâm dành thời gian, trí tuệ và cam kết nỗ lực để đạt được mục tiêu của mình, và nếu bạn không hề có ý đùa giỡn với bản thân, thì đúng là bạn đang cầm trong tay một viên kim cương vừa được lấy ra từ bãi đất đá đầy bụi bặm, một tấm bản đồ dẫn đến thành công, một bản kế hoạch quý giá có thể thay đổi hoàn toàn tương lai của bạn. Cách đây nhiều năm, sau một loạt hành động ngu ngốc và nhiều lỗi lầm, tôi đã đánh mất tất cả những điều mà tôi hết sức trân trọng: gia đình, nhà cửa và công việc. Gần như trắng tay và không có một định hướng nào cho tương lai, tôi bắt đầu lang thang khắp đó đây để tìm lại chính mình và cả những giải pháp khả dĩ hòng chấn chỉnh lại cuộc sống. Thời gian này, tôi thường xuyên lui tới các thư viện công cộng, đơn giản vì tôi có thể đọc sách báo cả ngày mà không phải trả tiền, hơn nữa không gian ở đó rất ấm áp. Tôi đọc mọi thứ, từ triết gia Plato cho đến nhà tư tưởng Peale, với mong muốn phát hiện ra trong đó một thông điệp có thể giải thích những sai lầm của tôi, giúp tôi hiểu được mình đã vấp váp chỗ nào. Từ sâu thẳm trong tâm hồn, tôi âm thầm hy vọng sẽ tìm thấy một cứu cánh cho phần đời còn lại của mình. Cuối cùng, tôi đã thấy câu trả lời trong cuốn sách của W. Clement Stone và Napoleon Hill, Tư Duy Tích Cực Tạo Thành Công. Hơn 15 năm qua, tôi đã không ngừng vận dụng các kỹ thuật và giải pháp trình bày trong cuốn sách kinh điển này vào cuộc sống của mình. Thật không ngờ, hạnh phúc và cả sự giàu có đều đã đến với tôi, thậm chí còn vượt xa những gì tôi xứng đáng được nhận. Từ một kẻ nghèo túng, lang thang, tôi đã trở thành chủ tịch của hai tập đoàn và tổng biên tập của tờ Success Unlimited (Thành Công Không Giới Hạn) – một tạp chí danh tiếng về bí quyết thành công. Tôi cũng viết sáu cuốn sách, một trong số đó, cuốn The Greatest Salesman in the World (Người Bán Hàng Vĩ Đại Nhất Thế Giới) là tác phẩm được các nhân viên bán hàng rất ưa chuộng. Cuốn sách đó đã được dịch ra 14 thứ tiếng và đã bán được hơn 3 triệu bản trên toàn thế giới. Chắc hẳn tôi sẽ không bao giờ đạt được những thành tựu này nếu không biết vận dụng các nguyên tắc thành công và áp dụng lối sống tích cực được đề cập trong tác phẩm kinh điển của Stone và Hill. Nếu tôi có thể bắt đầu con đường sự nghiệp của mình từ con số 0 thì bạn thử nghĩ mà xem, liệu bạn sẽ đạt được thành tựu lớn lao thế nào với những điều mà bạn đang có? Chúng ta đang sống trong một thế giới kỳ lạ và liên tục biến đổi. Mỗi ngày lại có một vài người mạo nhận là “nhà tiên tri lỗi lạc” xuất hiện và truyền bá những tư tưởng về hạnh phúc và thành công của ông ta. Cũng giống như những vòng người nhảy múa trong vũ điệu hula, tất cả rồi sẽ nhanh chóng biến mất hệt như khi xuất hiện. Và đến lúc màn sương mù tan đi, chân lý trong cuốn sách của Stone và Hill sẽ vẫn tiếp tục làm thay đổi cuộc sống của hàng ngàn, hàng triệu người trong số chúng ta. Bạn có muốn cuộc sống của mình tốt đẹp hơn không? Nếu câu trả lời của bạn là “Có” thì cuốn sách Tư Duy Tích Cực Tạo Thành Công là món quà ý nghĩa nhất mà bạn may mắn nhận được. Trước khi bắt đầu hành động, tôi mong bạn hãy đọc thật kỹ từng dòng và suy ngẫm từng ý tưởng. Mọi thứ đều đơn giản như trở bàn tay một khi bạn thật sự quyết tâm. Những điều tuyệt vời nhất đang đến với bạn đấy! Tôi biết chắc chắn là thế! </div>
